@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ohenga
 - 👀 I’m interested in web development
-- 🌱 I’m currently learning information technology
+- 🌱 I’m 
 - 💞️ I’m looking to collaborate on any projects that challenges me to think outside the box
 - 📫 How to reach me you can email me at mauricevivant254@gmail.com
 
